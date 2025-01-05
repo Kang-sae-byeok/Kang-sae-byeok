@@ -1,6 +1,7 @@
 ⠀⠀⠀⠀formerly meiiyuri
 ⠀⠀⠀⠀i have nothing ahead of me
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![astro](https://github.com/user-attachments/assets/00873003-185e-4808-919c-105774ed74e1)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![BUH](https://github.com/user-attachments/assets/376a780f-fda9-4f5b-962c-8b27c816c5ec)
+
 
 
 
