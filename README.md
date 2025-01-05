@@ -1,6 +1,7 @@
 ⠀⠀⠀⠀formerly meiiyuri
 ⠀⠀⠀⠀beauty
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![tearsinmyfireafyeyes](https://github.com/user-attachments/assets/15e88d81-3b4a-4698-908a-cae6b71100fe)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![tearsinmyfireafyeyes](https://github.com/user-attachments/assets/767058cb-72a1-4130-89fd-7f6b804fd7de)
+
 
 
 
