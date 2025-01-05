@@ -1,6 +1,7 @@
 ⠀⠀⠀⠀formerly meiiyuri
-⠀⠀⠀⠀i have nothing ahead of me
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![BUH](https://github.com/user-attachments/assets/376a780f-fda9-4f5b-962c-8b27c816c5ec)
+⠀⠀⠀⠀beauty
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![tearsinmyfireafyeyes](https://github.com/user-attachments/assets/15e88d81-3b4a-4698-908a-cae6b71100fe)
+
 
 
 
